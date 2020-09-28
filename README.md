@@ -1,0 +1,2 @@
+# toptan
+Son zamanlarda hızla gelişen tesettür giyim sektörü ile birlikte tesettür giyim modası  yeni trendleri ile hayatımıza oldukça hızlı bir giriş yaptı. Moda, günlük hayatımızın bir parçası olmakla beraber giyim ve tarza dair her şeyi ele alır.. İş hayatındaki tesettür giyim trendleri de bu kapsamda düşünülmesi gereken bir husustur. O halde, tesettürlü kadınlar ofiste nasıl giyinmeli? Ofis şıklığına ulaşmak için hangi moda kurallarına uyulmalı?
